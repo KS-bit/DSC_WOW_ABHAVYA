@@ -1,9 +1,9 @@
 
 ## DSC_WOW_ABHAVYA
 ## TEAM ADYANT
-- Jheel 
-- Aakriti
-- Kirti
+- [Jheel](https://www.linkedin.com/in/jheel-soni/)
+- [Aakriti](https://www.linkedin.com/in/aakriti19/)
+- [Kirti](https://www.linkedin.com/in/kirtisingh2203/)
 # ABHAVYA
 ## Every woman is incredible and safe!!
 <p align="center">
